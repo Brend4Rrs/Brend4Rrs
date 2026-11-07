@@ -23,5 +23,3 @@ Currently exploring:
 
 ## Connect with me
 
-- LinkedIn: [Your LinkedIn]
-- Portfolio: [Your Portfolio]
